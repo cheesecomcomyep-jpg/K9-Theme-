@@ -12,3 +12,5 @@ Discord Link: https://discord.gg/vcBXbP6Buq
 Also, sub to me on youtube! I will very much be happy if you do sub.
 I will put the link below to, but make sure to enjoy the sound and my videos if you do check my channel out.
 One more thing, makes sure to join the discord server.
+
+Youtube Link: https://www.youtube.com/@CheeseLordofCheese-6767
